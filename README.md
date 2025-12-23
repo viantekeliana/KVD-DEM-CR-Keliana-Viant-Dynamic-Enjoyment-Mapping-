@@ -39,7 +39,7 @@ Commercial use includes, but is not limited to:
 
 To obtain a commercial license, contact:
 
-[Your contact email or website]
+[viantekeliana@gmail.com Keliana Vianté on Facebook]
 
 --------------------------------------------------
 DISCLAIMER
